@@ -1,1 +1,0 @@
-# ar-project-thumbs-up5uwvv
